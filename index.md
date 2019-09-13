@@ -13,7 +13,7 @@
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiPUUAAhYcS?format=jpg&name=4096x4096)  
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiRVAAA-MUU?format=jpg&name=4096x4096)<br>
 **すげ～～～～～！！！**<br>
-![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiPVUAMEZYx?format=jpg&name=large)<br>
+<img width="200px" alt="しろいねこ" src="https://pbs.twimg.com/media/EEUaCiPVUAMEZYx?format=jpg&name=large"><br>
 **↑はしゃぐ加田くん**<br><br>
 ## もう一つの好きなもの: 二郎系ラーメン<br>
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUbgxuUEAAr-Hu?format=jpg&name=small)<br>
