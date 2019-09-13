@@ -9,11 +9,11 @@
 趣味: **ダーツ**<br>
 好きなもの: ***Monster Energy***<br><br>
 ## 私にとってMonster Energyとは<br>
-### 薬物
-です。<br>
-皆さんも飲みすぎには注意しましょう。<br><br>
+### 薬物です。<br>
+最近私は健康診断が近いので1週間前から1本も飲まない決意を固めました！<br>
+皆さんも飲みすぎには注意しましょう。<br><br><br><br><br>
 ## 最近うれしかったこと<br>
-合宿1日目にMonster Energyの24本のボックスを買いました！！<br>
+合宿1日目にMonster Energyの24本のボックスを買いました！！飲むに決まってんだろ!!!!<br>
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiPUUAAhYcS?format=jpg&name=4096x4096)  
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiRVAAA-MUU?format=jpg&name=4096x4096)<br>
 **すげ～～～～～！！！**<br>
