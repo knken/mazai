@@ -8,6 +8,10 @@
 誕生日: **1998.7.17**<br>
 趣味: **ダーツ**<br>
 好きなもの: ***Monster Energy***<br><br>
+## 私にとってMonster Energyとは<br>
+### 薬物
+です。<br>
+皆さんも飲みすぎには注意しましょう。<br><br>
 ## 最近うれしかったこと<br>
 合宿1日目にMonster Energyの24本のボックスを買いました！！<br>
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiPUUAAhYcS?format=jpg&name=4096x4096)  
