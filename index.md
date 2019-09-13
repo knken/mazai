@@ -14,4 +14,10 @@
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiRVAAA-MUU?format=jpg&name=4096x4096)<br>
 **すげ～～～～～！！！**<br>
 ![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUaCiPVUAMEZYx?format=jpg&name=large)<br>
-**↑はしゃぐ加田くん**<br>
+**↑はしゃぐ加田くん**<br><br>
+## もう一つの好きなもの: 二郎系ラーメン<br>
+![外部リンク(宇部市旗)](https://pbs.twimg.com/media/EEUbgxuUEAAr-Hu?format=jpg&name=small)<br>
+**マジで最高～～～～！！！！**<br><br>
+画像のラーメンは工学部出てすぐの「ラーメン祐三」というお店です！<br>
+二郎系はもう見飽きたよ～っていう東京からお越しの方も、ぜひ食べてみてください！<br>
+※行列がすごいのでお時間のある時に...<br>
